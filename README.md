@@ -1,0 +1,2 @@
+# The-Experience-IS-The-Product
+The Hardware is NOT the Product! The Experience is! and our Software. UniStor.EFS = "Never Lose a File Again!" UniCloud = Make money With your Machines! UniBank = Financing and total Personal Financial Empowerment. OpenPhoton = Streaming &amp; doing it "Professionally"! Metal on Phone = Never have an Unbootable Computer Again! Uni.os = the Ultimate in productivity and freedom at zero cost. UniVR = Join the Future of society &amp; technology NOW! All preinstalled by default and selectable with a single tab!
